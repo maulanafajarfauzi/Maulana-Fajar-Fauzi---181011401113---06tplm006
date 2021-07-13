@@ -1,0 +1,2 @@
+# Maulana-Fajar-Fauzi---181011401113---06tplm006
+UAS KECERDASAN BUATAN
